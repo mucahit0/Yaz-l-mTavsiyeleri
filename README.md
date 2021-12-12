@@ -27,7 +27,7 @@
 * ÇAy kahve insan: sektorde kendini gleiştiren insanlarala roportajların yapıldıgı guzel bir kanal https://www.youtube.com/c/Caykahveinsan
 * Adem İlter: Web ile ilgilenenler için, https://www.youtube.com/c/AdemIlter
 * Arin Yazılı: Web ile ilgilenenler için, https://www.youtube.com/c/ArinYazilim
-* Herkesin takip etmesi gerekn bir kanal bu adam 8 yaşından beri yazılımla ilgileniyor sozlerine kulak asın https://www.youtube.com/c/ArinYazilim
+* Herkesin takip etmesi gerekn bir kanal bu adam 8 yaşından beri yazılımla ilgileniyor sozlerine kulak asın https://www.youtube.com/c/Arma%C4%9FanAmcalar
 * atıl samancıoglu: siber güvenlikle ilgilenenler için, https://www.youtube.com/channel/UCnmAu7FF7LeoyTozrMVtTxQ
 
 
