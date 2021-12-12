@@ -36,12 +36,12 @@
 * W3school bu turkce degil ama kesinlikle bakmanız gereken bir site  https://www.w3schools.com/
 * Cok iyi tavsiyeler veren bir blog sayfası, https://talentgrid.io/
 * Javascript ogrenmek isteyenler için, https://learnjavascript.online/
+* Patika, https://www.patika.dev/
 
 
 # İngilizce ogrenmek icin bu siteleri kullanabilirsiniz
 
 * Voscreen: https://www.voscreen.com/
-* Patika, https://www.patika.dev/
 * https://learningenglish.voanews.com/p/5609.html
 * https://tr.duolingo.com/
 
